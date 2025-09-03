@@ -1,1 +1,1 @@
-# 225736_Hồ Vủ Minh Tài_DH22TIN06
+# Buổi 1
